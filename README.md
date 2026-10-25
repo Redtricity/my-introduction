@@ -2,4 +2,4 @@
 
 I'm Lara McIntyre
 I love pokemon
-My favourite pokemon is pikachu 
+My favourite pokemon is eevee  
